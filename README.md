@@ -5,10 +5,14 @@ Transparency, full and complete transparency is the unltimate goal in our consum
 
 
 
-Transperency is the worlds most sacred commodity.
+TRANSPERENCY IS THE WORLDS MOST SACRED COMMODITY.
+
 It's coveted.
+
 It's treasured.
+
 It's a facade.
+
 Let's be honest, do you actually shop based on ethical transparency, or even basic supply chain transparency?
 Would you change your buying habits if you knew?
 Would you change your habits even if you had to give up technology that is central to your life and your routine?
@@ -30,7 +34,7 @@ These academic studies are one Google search away, but at the same time complete
 !INPUT IMAGE!
 
 
- “After work, the employer locks usin the hostel. Every week he just chooses a few of us to go out to the market for a few hours, then back to the hostel. The guard supervises us closely. We can’t go out; if we don’t listen to him, he will beat us.” (Verité (2014), p. 124)
+_“After work, the employer locks usin the hostel. Every week he just chooses a few of us to go out to the market for a few hours, then back to the hostel. The guard supervises us closely. We can’t go out; if we don’t listen to him, he will beat us.”_ (Verité (2014), p. 124)
  
  !INPUT IMAGE!
  
